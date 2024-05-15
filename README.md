@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **ala.lacoste21@gmail.com**
 
-- ⚡ Fun fact **HHHH Who !! Me Of Course I Am So Funny**
+- ⚡ Fun fact **i am not in danger i am the danger**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
